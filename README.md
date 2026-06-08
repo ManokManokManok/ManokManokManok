@@ -1,5 +1,5 @@
 # 💫 About Me:
-3rd Year BSIT student
+4th Year BSIT student
 
 
 ## 🌐 Socials:
